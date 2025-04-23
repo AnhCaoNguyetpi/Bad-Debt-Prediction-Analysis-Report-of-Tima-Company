@@ -1,0 +1,1 @@
+# Bad-Debt-Prediction-Analysis-Report-of-Tima-Company
